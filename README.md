@@ -1,4 +1,4 @@
-### Hi there, I am chloe👋
+### Hi there, I am linyu👋
 
 ✨ step by step✨
 
